@@ -1,4 +1,4 @@
-### Eai galera, Eu sou Enzo Shiotuqui, nerdola gamer e estudante de programação
+### Eai galera, Eu sou Enzo Shiotuqui, nerdola, gamer e estudante de programação
 
 
 <picture>
